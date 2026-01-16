@@ -1,3 +1,3 @@
-<p style="text;"> ☆ he / him , 6teen , filo ! </p>
-<p style="text;"> > eng + 中文 <
-<p style="text;"> t4t - mlm 
+
+<p style="text;"> hey ponytowners. im usually camille sinclair or yesod and linger around in the project moon area a lot , or wherever oomfs are </p>
+< style="text;"> legit online either when im at school or doing hw / studying . just w2i unless i specify otherwise ! </p>
