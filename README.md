@@ -4,4 +4,4 @@
 <p style="text;"> — i like to sit with others ok... pls c+h freely i wont be mean even when i have iwec in my display name ok... that just means im not gonna talk a lot
 <p style="text;"> — current fixations are limbus and tfc ok if you laugh you die. pls dont be rude or else i will block you </p>
 <p style="text;"> — 👀
-<img src="https://cdn.discordapp.com/attachments/839683840917241876/1461841225073037496/Screenshot_20260109_230541_Chrome.jpg?ex=696c053b&is=696ab3bb&hm=a9dbae65383615421f602cd49815304d650403c0323f2c34abcd0bf7d4befd2f" alt="" class="GeneratedImage"> </p>
+<img src="https://i.postimg.cc/y6SgVzM4/Screenshot-20260109-230541-Chrome.jpg" alt="Yayayya" class="GeneratedImage"> </p>
