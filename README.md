@@ -1,3 +1,5 @@
+> [!NOTE]
+> [MDD](https://my.clevelandclinic.org/health/diseases/24481-clinical-depression-major-depressive-disorder) + [GAD](https://my.clevelandclinic.org/health/diseases/23940-generalized-anxiety-disorder-gad) . Please be patient with me and understand that such disorders heavily affect my mood, interest, and motivation.
 <img src="https://pbs.twimg.com/media/GaSBR-BWIAAElUJ.jpg" alt="" class="GeneratedImage">
 <p style="text;"> — hey ponytowners. im usually camille when in the project moon area, tori when in the eddsworld area, one of my other faves, or one of my bum ocs; most of the time seen sitting with oomfs ^_^ especially the chudlings in my bio... </p>
 <p style="text;"> — usually on pt when doing hw / studying, meaning im afk a lot. if my status is "busy" pls expect very late replies / no reply at all. </p>
