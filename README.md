@@ -1,5 +1,7 @@
 > [!NOTE]
-> [MDD](https://my.clevelandclinic.org/health/diseases/24481-clinical-depression-major-depressive-disorder) + [GAD](https://my.clevelandclinic.org/health/diseases/23940-generalized-anxiety-disorder-gad) . Please be patient with me and understand that such disorders heavily affect my mood, interest, and motivation.
+> • preparing for AP exams! expect late replies and minimal interactions.
+>
+> • [MDD](https://my.clevelandclinic.org/health/diseases/24481-clinical-depression-major-depressive-disorder) + [GAD](https://my.clevelandclinic.org/health/diseases/23940-generalized-anxiety-disorder-gad) . Please be patient with me and understand that such disorders heavily affect my mood, interest, and motivation.
 <img src="https://pbs.twimg.com/media/GaSBR-BWIAAElUJ.jpg" alt="" class="GeneratedImage">
 <p style="text;"> — im usually camille in the project moon area, tori in the eddsworld area, one of my other faves, or one of my ocs; most of the time seen sitting with oomfs ^_^ </p>
 <p style="text;"> — usually on when doing hw or studying, meaning im afk a lot. if my status is "busy" then expect no reply at all or very late replies </p>
