@@ -1,5 +1,5 @@
 > [!NOTE]
-> • preparing for AP exams! expect late replies and minimal interactions.
+> • Preparing for AP exams THIS WEEK. Expect late replies, minimal interactions, and some inactivity.
 >
 > • [MDD](https://my.clevelandclinic.org/health/diseases/24481-clinical-depression-major-depressive-disorder) + [GAD](https://my.clevelandclinic.org/health/diseases/23940-generalized-anxiety-disorder-gad) . Please be patient with me and understand that such disorders heavily affect my mood, interest, and motivation.
 <img src="https://pbs.twimg.com/media/GaSBR-BWIAAElUJ.jpg" alt="" class="GeneratedImage">
