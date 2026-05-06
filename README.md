@@ -13,7 +13,7 @@
 <p style="text;"> — c+h always encouraged unless said otherwise; if i have iwec in my display name then dont expect me to talk a lot </p>
 <p style="text;"> — very awkward when talking to new people; sorry if i seem dismissive. i will try to match your energy though! </p>
 <p style="text;"> — if idk who you are, or dont know you very well, DO NOT be rude to me nor weird with me whether its a joke or not. i will block when i and / or any of my friends are uncomfortable. </p> 
-<p style="text;"> — and no i will not take any rp seriously if we're on the main map ok thanks bye
+<p style="text;"> — im okay with rp (unless busy/offtab) although i might not take it too seriously if we're on the main map
 </details>
 <details>
 <summary>All the other stuff</summary>
