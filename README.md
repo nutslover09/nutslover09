@@ -18,7 +18,7 @@
 <details>
 <summary>All the other stuff</summary>
 </p>
-<p style="text;"> — often found lingering in the eddsworld area or the project moon area (I MISS MY PROJMOON OOMFS COME BACK TO ME ITS SO LONELY) usually in a cos as one of my fave characters or one of my ocs; most of the time seen loafing with oomfs ^_^ </p>
+<p style="text;"> — often found lingering in the eddsworld area or the project moon area (which is now dry and dead. where did you guys go) usually in a cos as one of my fave characters or one of my ocs; most of the time seen loafing with oomfs ^_^ </p>
 <p style="text;"> — I LOVE ALL MY FRIENDS THEYRE SO AWESOME!!! throws heart confetti everywhere </p>
 <p align="center">
   <img width="300" src="https://i.postimg.cc/y6SgVzM4/Screenshot-20260109-230541-Chrome.jpg"> <br> ^ my bf that hates me and wants me dead
