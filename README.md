@@ -2,7 +2,7 @@
 > • finals month uhhmm expect some inactivity and minimal interactions ok? ok <br> </p>
 > • [MDD](https://my.clevelandclinic.org/health/diseases/24481-clinical-depression-major-depressive-disorder) + [GAD](https://my.clevelandclinic.org/health/diseases/23940-generalized-anxiety-disorder-gad) . Please be patient with me and understand that such disorders heavily affect my mood, interest, and motivation.
 
-<pre> <p align="center"> 🇵🇭 . Rue / Kieran / Camryn . 16 . he/him </pre>
+<pre> <p align="center"> 🇵🇭 . Rue / Kieran / Camryn . 17 . he/him </pre>
 <p align="center">
   <img width="300" src="https://pbs.twimg.com/media/GaSBR-BWIAAElUJ.jpg">
 
