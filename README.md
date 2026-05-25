@@ -14,21 +14,17 @@
 <p style="text;"> — dont be rude to me or weird with me unless we're close. i will block when i and / or any of my friends are uncomfortable. </p> 
 <p style="text;"> — im okay with rp (unless busy/offtab) although i might not take it too seriously if we're on the main map </p>
 </details>
+
 <details>
 <summary>All the other stuff</summary>
 </p>
-<p style="text;"> — often found lingering in the eddsworld area or the project moon area usually in a cos as one of my fave characters or one of my ocs; most of the time seen loafing with oomfs ^_^ </p>
+<p style="text;"> — often found lingering in the eddsworld area or the project moon area, usually in a cos as one of my fave characters or one of my ocs; most of the time seen loafing with oomfs ^_^ </p>
 <p style="text;"> — fictkin + yumeshipper (mirrorsharing) + multishipper! you can talk to and ask me about any of these topics, just dont be rude about it! </p>
 <p style="text;"> — I LOVE ALL MY FRIENDS THEYRE SO AWESOME!!! throws heart confetti everywhere </p>
 <p align="center">
-  <img width="300" src="https://i.postimg.cc/y6SgVzM4/Screenshot-20260109-230541-Chrome.jpg"> <br> ^ my bf that hates me and wants me dead
+  <img width="300" src="https://i.postimg.cc/Fsrw7XSp/Screenshot-2026-05-23-193359.png"> <br> aww luka we are so cute aww 
 <p align="center">
-  <img width="300" src="https://i.postimg.cc/RFpRxP6S/Screenshot-2026-02-15-050527.png"> <br> pm valentines '26 
-<p align="center">
-  <img width="300" src="https://i.postimg.cc/WDk5trCx/Screenshot-2026-04-26-200426.png"> <br> HAPPY LOAF HAPPY LIFE
-<p align="center">
-  <img width="300" src="https://i.postimg.cc/XBJHjhbc/Screenshot-2026-03-01-225451.png"> <br> happy family hello why is the quality so bad
+  <img width="300" src="https://i.postimg.cc/QdL5fhqf/Screenshot-2026-04-26-200426.png"> <br> my favorite people ever
 <p align="center">
   <img width="300" src="https://i.postimg.cc/MHPKDQLw/Screenshot-2026-02-18-231909.png"> <br> ritzy why 
 </details>
-
