@@ -22,7 +22,7 @@
 <p style="text;"> — fictkin + yumeshipper (mirrorsharing) + multishipper! you can talk to and ask me about any of these topics, just dont be rude about it! </p>
 <p style="text;"> — I LOVE ALL MY FRIENDS THEYRE SO AWESOME!!! throws heart confetti everywhere </p>
 <p align="center">
-  <img width="300" src="https://i.postimg.cc/Fsrw7XSp/Screenshot-2026-05-23-193359.png"> <br> aww luka we are so cute aww 
+  <img width="300" src="https://i.postimg.cc/Fsrw7XSp/Screenshot-2026-05-23-193359.png"> <br> me and bf so cute aww hi luka
 <p align="center">
   <img width="300" src="https://i.postimg.cc/QdL5fhqf/Screenshot-2026-04-26-200426.png"> <br> my favorite people ever
 <p align="center">
