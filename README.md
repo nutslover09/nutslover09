@@ -11,7 +11,7 @@
 <p style="text;"> — usually offtab, meaning im afk a lot. if my status is "busy" then expect no reply at all or very late replies </p>
 <p style="text;"> — c+h always encouraged unless said otherwise; if i have iwec in my display name then dont expect me to talk a lot </p>
 <p style="text;"> — very awkward when talking to new people; sorry if i seem dismissive. i will try to match your energy though! </p>
-<p style="text;"> — dont be rude to me or weird with me unless we're close. i will block when i and / or any of my friends are uncomfortable. </p> 
+<p style="text;"> — dont be rude or weird to me unless we're close. i will block when i and / or any of my friends are uncomfortable. </p> 
 <p style="text;"> — im okay with rp (unless busy/offtab) although i might not take it too seriously if we're on the main map </p>
 </details>
 
