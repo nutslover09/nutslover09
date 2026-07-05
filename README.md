@@ -4,3 +4,4 @@
 <p style="text;"> basic dni applies, dni proshits, just dont be rude or weird </p> 
 <p style="text;"> my mental health is bad and i frequent in moodswings so iwc ok </p>
 <p style="text;"> i love my bf and all my friends theyre awesome yay ❤️ </p>
+<p style="text;"> extra: BACONCOLA #1 FAN im also a multishipper so do not fret i am respectful medias
