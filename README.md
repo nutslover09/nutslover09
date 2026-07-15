@@ -1,4 +1,6 @@
-<p style="text;"> matt fictkin + yi sang fictkin </p>
-<p style="text;"> c+h freely . offtab / afk = late replies </p>
-<p style="text;"> unstable emotions & frequent moodswings , iwc </p>
-<p style="text;"> basic dni, proship dni. just dont be rude or weird. </p> 
+<p align="center">
+  <img width="400" src="https://i.postimg.cc/d1v0PgTd/985539d9-6ed1-46e9-9128-2aa1fb35b123.png">
+<pre> <p align="center"> matt fictkin + yi sang fictkin 
+c+h freely . offtab / afk = late replies
+unstable emotions & frequent moodswings . iwc
+basic dni, proship dni. just dont be rude or weird. </pre>
