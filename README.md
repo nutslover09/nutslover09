@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="200" src="https://i.postimg.cc/ry3M6ybb/yi-sang-again-woah.jpg">
+  <img width="200" src="https://i.postimg.cc/hG3spGPK/bb3be20e-dbbf-468b-9f73-44421248d209.png">
 <pre> <p align="center"> Rue / Kieran [17] he / any
 Matt fictkin + Yi Sang fictkin 
 c+h freely . offtab / afk = late replies
