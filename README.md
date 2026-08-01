@@ -4,4 +4,5 @@
 Matt fictkin + Yi Sang fictkin 
 c+h freely . offtab / afk = late replies
 unstable emotions & frequent moodswings . iwc
-basic dni, proship dni. just dont be rude or weird. </pre>
+basic dni, proship dni, -13 dni. dont be rude or weird. 
+</pre>
